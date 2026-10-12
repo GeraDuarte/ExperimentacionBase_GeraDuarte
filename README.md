@@ -1,1 +1,0 @@
-# ExperimentacionBase_GeraDuarte
